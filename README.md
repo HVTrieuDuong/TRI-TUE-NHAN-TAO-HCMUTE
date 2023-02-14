@@ -1,2 +1,2 @@
-# Tr-tu-nh-n-t-o-HCMUTE
+# Tri tue nhan tao HCMUTE
 Bài tập
